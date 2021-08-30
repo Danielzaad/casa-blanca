@@ -1,2 +1,0 @@
-# casa-blanca
-my house
